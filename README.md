@@ -1,1 +1,0 @@
-# -memology-by-dimOn-
